@@ -96,4 +96,82 @@ The boy who had loved her unconditionally, and whom she had pushed away.
 
 *What have I done to you, Aarav? What did my rejection turn you into?*
 
+---
+
+## The Next Day
+
+The pale morning light filtered through the grimy windows of the mud-brick compound. Aanya had barely slept, her mind tormented by the impossible reality of seeing Aarav in this place, in this role. She had spent the night praying silently, desperately hoping that somehow the gentle, caring boy she once knew still existed beneath the cold exterior of the commander.
+
+*Please, let him remember who he used to be. Let him remember the boy who used to recite poetry under the stars, who dreamed of changing the world with his code, who promised to always take care of me.*
+
+The other captives huddled together in the cramped room on the second floor of the compound. The mud walls were thick but couldn't completely muffle the sounds from outside—the harsh voices of militants, the clanking of weapons, the general atmosphere of controlled chaos that seemed to permeate this place.
+
+Aanya pressed her face close to the small window, trying to catch a glimpse of Aarav, hoping against hope to see some sign of the boy she once knew.
+
+Suddenly, the sharp crack of gunfire shattered the morning silence.
+
+All the girls scrambled to the window, their hearts racing with terror and morbid curiosity. What they saw below made Aanya's blood run cold.
+
+A crowd had gathered in the courtyard. Two men were tied to wooden posts, their faces bloody and swollen from beatings. Between them lay a third man—motionless, a dark pool spreading beneath his head. The acrid smell of gunpowder drifted up to their window.
+
+And there, standing in the center of it all with a smoking pistol in his hand, was Aarav.
+
+"These dogs claimed to be simple traders," his voice carried up to them, cold and commanding. "But they were sending information to American intelligence. They thought they could infiltrate our operations."
+
+The crowd of militants cheered and shouted their approval. Aarav's face was a mask of stone as he gestured to the surviving captives.
+
+"This is what happens to spies. This is what happens to traitors. Let this be a lesson to anyone who thinks they can betray our cause."
+
+Aanya's hands flew to her mouth, stifling a sob. The boy who used to quite when they watched sad movies, who used to wipe my tears when I cried, who couldn't even bring himself to step on an ant, had just executed a man in cold blood.
+
+The crowd began to disperse, but Aarav's sharp eyes caught movement at the window above. His gaze traveled upward and locked directly onto the faces of the girls pressed against the glass.
+
+"GET AWAY FROM THAT WINDOW!" his voice boomed across the courtyard with terrifying authority. After a long silence, two more gunshots rang out, and the remaining men slumped lifeless against their posts, blood staining the weathered wood.
+
+The girls scrambled backward, but it was too late. Heavy footsteps thundered up the stairs, and within moments, the door burst open. Aarav stood in the doorway, his presence filling the small room with menace.
+
+"I told you to stay away from the windows," he said, his voice deadly quiet. "Did you enjoy the show?"
+
+His eyes swept across their terrified faces, lingering for just a moment longer on Aanya before moving on. If there was any recognition there, he buried it deep.
+
+"Sit. Down. Now." Each word was delivered like a hammer blow.
+
+The girls immediately complied, pressing themselves against the far wall.
+
+"You see what happened to those men down there?" Aarav continued, his voice never rising but somehow more frightening for its calm control. "That will be your fate if you disobey our orders. If you try to escape. If you cause any trouble whatsoever."
+
+He paced slowly in front of them, his boots echoing ominously on the floor.
+
+"You are here for a reason. You will do as you're told, when you're told. You will not speak unless spoken to. You will not look out those windows again. And you will remember that your lives depend entirely on your obedience."
+
+His gaze found Aanya again, and for just a split second, she thought she saw something flicker in his eyes—a ghost of recognition, a shadow of pain. But it was gone so quickly she might have imagined it.
+
+"Am I understood?" he barked.
+
+"Yes," the girls whispered in unison, their voices barely audible.
+
+Aarav turned on his heel and strode toward the door, then paused.
+
+"Oh, and ladies," he said without turning around, "if any of you are thinking of playing hero, remember this—I know exactly how to make death take a very, very long time."
+
+The door slammed shut behind him, followed by the sound of a heavy lock clicking into place.
+
+The moment he was gone, Aanya collapsed, her body shaking with silent sobs. The other girls tried to comfort her, but how could they understand? How could anyone understand what it felt like to watch the person you once loved—the person who once loved you more than life itself—transform into this monster?
+
+"How could he change like this?" she whispered through her tears. "I'm scared because I'm trapped here, but I'm even more heartbroken for him. He was so good in college. So pure. So gentle."
+
+Aadyami wrapped her arms around her friend. "People can change, Aanya. War, pain, betrayal—they can twist someone beyond recognition."
+
+But Aanya shook her head. "You don't understand. This isn't just change. This is... this is destruction. Someone destroyed the beautiful soul he had and replaced it with this... this darkness."
+
+*And I was part of that destruction,* she thought but couldn't bring herself to say aloud. *My rejection, my lies, my cruelty—did they help break him? Did they push him toward this path?*
+
+Outside, the sounds of the compound continued—orders being barked, weapons being cleaned, the general bustle of a military operation. But all Aanya could hear was the echo of that gunshot and the memory of Aarav's cold, emotionless voice as he sentenced men to death.
+
+The boy who once promised to always protect her had become the very person she now needed protection from. And somewhere in the twisted maze of fate and choices, love had transformed into its own darkest nightmare.
+
+*What have we both become?* she wondered, staring at the locked door through which her former love had disappeared. *And is there any way back from this darkness?*
+
+---
+
 *To be continued...*
