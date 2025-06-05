@@ -16,11 +16,11 @@ _Coming soon..._
 
 ## About the Author
 
-_Author bio to be added_
+[SH20RAJ](https://x.com/sh20raj) is a passionate storyteller who weaves tales that resonate with the complexities of human emotions. With a background in literature and a keen interest in exploring the depths of love and loss, SH20RAJ aims to create narratives that linger in the hearts of readers.
 
 ## License
 
-© 2023 All Rights Reserved
+© 2025 All Rights Reserved
 
 ---
 
