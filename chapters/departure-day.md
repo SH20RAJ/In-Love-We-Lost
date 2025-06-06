@@ -1,4 +1,4 @@
- # Chapter: The Departure - When Hearts Collide
+# Chapter: The Departure - When Hearts Collide
 
 ## The Truth Unveiled
 
@@ -142,7 +142,4 @@ The desert stretched endlessly before them, vast and unforgiving, much like the 
 
 *In the vast emptiness of the desert, two broken hearts began the long journey toward healing. But some distances can only be crossed one painful step at a time.*
 
-*The real journey was just beginning.* 
-
-
-
+*The real journey was just beginning.*
